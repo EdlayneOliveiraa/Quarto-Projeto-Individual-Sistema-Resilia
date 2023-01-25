@@ -1,0 +1,1 @@
+# Quarto-Projeto-Individual-Sistema-Resilia
